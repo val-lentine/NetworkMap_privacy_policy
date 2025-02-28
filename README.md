@@ -1,1 +1,1 @@
-# networkmap_terms_of_use
+# networkmap_privacy_policy
